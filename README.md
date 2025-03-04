@@ -1,3 +1,5 @@
+
+
 Glaciers are melting, sea levels are rising, precipitation is decreasing, and wildlife is struggling to keep pace.
 It has become clear that humans have caused most of the past century’s warming by releasing heat-trapping
 gases as we power our modern lives. This global rise in the temperature of the air and oceans is called global
